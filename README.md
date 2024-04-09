@@ -9,3 +9,10 @@
 <p align="center">
 
 ## YOU'RE WELCOME GEE ##
+***
+### DEVELOPER:
+**GET In Touch with The Owner**
+- [**On Facebook**](https://www.facebook.com/profile.php?id=100089230557627)
+- [**Via WhatsApp**](https://wa.me/254112541828)
+
+***
