@@ -2,9 +2,9 @@
 
 ***
   
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=50&pause=1000&color=1BAFBAFF&center=true&width=910&height=100&lines=THANKS FOR CHOOSING STEVE  ;CREATED+BY+STEVE+KENYAN+KING;RELEASED+09.04.2024" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=50&pause=1000&color=1BAFBAFF&center=true&width=9 10&height=100&lines=THANKS FOR VISITING; PENELOPE935011 PROFILE ;CODE+CREATED+BY;STEVE+KENYAN+KING;RELEASED+25.04.2024;I AM+INTERESTED+IN; LEARNING+CODING,; CREATING WHATSAPP PROJECTS,; ie WHATSAPPBOT; AND ALSO UNETHICAL+HACKING." alt="Typing SVG" /></a>
   </p>
-    <img alt="KENYAN-KING" width="700" height="300" src="https://telegra.ph/file/f9651ba3b22ba541a3ec7.jpg">
+    <img alt="KENYAN-KING" width="300" height="300" src="https://telegra.ph/file/5bf14ec0427f5f624b333.jpg">
 <p align="center">
 <p align="center">
 
